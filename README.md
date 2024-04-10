@@ -1,2 +1,1 @@
-![1633830016917](https://github.com/kosshi-net/kosshi-net/assets/19539479/69924e75-e6fb-43af-ac55-5b5e9916ca8e)
-
+![tux](https://github.com/kosshi-net/kosshi-net/assets/19539479/80d7efbb-8680-403c-b3d3-f3d91a1ff2d2)
